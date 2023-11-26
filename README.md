@@ -9,7 +9,7 @@ Explore
 Instagram
 
 
-![Instagram](https://github.com/Taha-Berk/Odev/assets/152072754/f4a6aeb3-e24a-49b9-89a5-10f9b6d993f8)
+![Instagram](https://github.com/Taha-Berk/Odev/assets/152072754/360d198c-6219-450a-a5c7-3370b8367f6a)
 
 Youtube_Music
 
